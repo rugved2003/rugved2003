@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **nakkarugved2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1pym88LrjRQAP1LmqB_DFbbNCC6hGmFil?usp=sharing](https://drive.google.com/drive/folders/1pym88LrjRQAP1LmqB_DFbbNCC6hGmFil?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1O0yIAwmhU5bU6w30nb27ACPog_IdCvbx/view?usp=share_link](https://drive.google.com/file/d/1O0yIAwmhU5bU6w30nb27ACPog_IdCvbx/view?usp=share_link)
 
 - ⚡ Fun fact **I think I am funny**
 
